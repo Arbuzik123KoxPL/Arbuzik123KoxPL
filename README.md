@@ -1,2 +1,1 @@
-Siema Jestem Arbuzik Lubie Jesć Arbuzy I Kocham Gre Minecraft 
-
+Tutaj wrzucam 3D modele na Blender najczęściej.
